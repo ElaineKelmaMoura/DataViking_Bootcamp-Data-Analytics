@@ -1,1 +1,1 @@
-# DataViking_Bootcamp-Data-Analytics![Cópia de Sem nome (2)](https://user-images.githubusercontent.com/72770754/187780621-f9cbd596-b974-4c68-b39d-66fb687898a2.png) <h1 align="left">DataViking_Bootcamp-Data-Analytics</h1>
+# ![Cópia de Sem nome (4)](https://user-images.githubusercontent.com/72770754/187780871-a2d87d42-81a5-4a0c-a73d-22a2afea3c12.png)  DataViking_Bootcamp-Data-Analytics
